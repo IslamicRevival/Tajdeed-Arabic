@@ -20,6 +20,7 @@ Saqeefah
 https://github.com/IslamicRevival/Tajdeed-Arabic/blob/main/As-Saqeefah.pdf
 
 Immigration, Citizenship, Self Determination
+https://github.com/IslamicRevival/Tajdeed-Arabic/blob/main/%D8%A7%D9%84%D9%87%D8%AC%D8%B1%D8%A9%D8%8C_%D9%88%D8%A7%D9%84%D8%AA%D8%A7%D8%A8%D8%B9%D9%8A%D8%A9_%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A%D8%A9_%D9%88%D8%AD%D9%82_%D8%AA%D9%82%D8%B1%D9%8A%D8%B1_%D8%A7%D9%84%D9%85%D8%B5%D9%8A%D8%B1.pdf
 
 
 
