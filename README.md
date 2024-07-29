@@ -16,6 +16,7 @@ https://github.com/IslamicRevival/Tajdeed-Arabic/blob/main/%D8%B7%D9%84%D8%A8_%D
 Saheefah Al Madina
 
 Saqeefah
+https://github.com/IslamicRevival/Tajdeed-Arabic/blob/main/As-Saqeefah.pdf
 
 Immigration, Citizenship, Self Determination
 
